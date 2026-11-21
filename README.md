@@ -18,7 +18,7 @@
 ### 📖 品牌介绍
 * **官方名称：** TAG Internet
 * **官网：** [TAG Internet](https://tagss.pro/#/auth/bWoAPVEO)
-* **我的邀请码：** [https://tagss.pro/#/auth/bWoAPVEO](https://tagss.pro/#/auth/bWoAPVEO)
+* **我的邀请码：** [https://bit.ly/4t8NwIt](https://bit.ly/4t8NwIt)
 * **行业地位：** **顶级专线机场**，**不在网上宣传**，低调得很。拥有**全球节点**，家宽资源丰富，号称**家宽收藏者**。稳定性拉满，**稳定战神**。
 * **博客评测：** [【顶级】TAG Internet 专线机场](https://travisblog.qzz.io/article/tag-internet-review)
 
